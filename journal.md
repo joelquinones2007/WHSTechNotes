@@ -6,3 +6,5 @@ no it was at frist byt easy by step
 freeweek
 # september 30, 2024
 computer science is used everywhere like apps so as tiktok or snap or insta or apps for school work etc 
+# october 7, 2024
+Special Agent - Computer Science/IT Background
