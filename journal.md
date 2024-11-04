@@ -11,3 +11,6 @@ Special Agent - Computer Science/IT Background
 # october 15, 2024 
 to understand how it works and to use it for good etc
 # october 21, 2024
+ai helps us understand the work if you use it right or to speed up the process what it also does is not help as if you just use it and not try to understand it will not because your just doing it and getting nothing from it
+# october 28, 2024
+not learing anything and just useing ai or google
