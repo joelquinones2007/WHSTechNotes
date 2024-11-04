@@ -8,3 +8,6 @@ freeweek
 computer science is used everywhere like apps so as tiktok or snap or insta or apps for school work etc 
 # october 7, 2024
 Special Agent - Computer Science/IT Background
+# october 15, 2024 
+to understand how it works and to use it for good etc
+# october 21, 2024
