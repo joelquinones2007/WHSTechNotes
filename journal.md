@@ -14,3 +14,5 @@ to understand how it works and to use it for good etc
 ai helps us understand the work if you use it right or to speed up the process what it also does is not help as if you just use it and not try to understand it will not because your just doing it and getting nothing from it
 # october 28, 2024
 not learing anything and just useing ai or google
+# november 12, 2024 
+chirshmas love it because you get to soend time with family and friends also get cool gitfs from everyone etc 
