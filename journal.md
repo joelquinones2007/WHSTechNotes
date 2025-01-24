@@ -16,3 +16,9 @@ ai helps us understand the work if you use it right or to speed up the process w
 not learing anything and just useing ai or google
 # november 12, 2024 
 chirshmas love it because you get to soend time with family and friends also get cool gitfs from everyone etc 
+# january 8, 2025
+I enjoyed the classes and tennis etc
+# january 13, 2025
+I don't want to have a career in tech so far but still looking aroud 
+# january 22, 2025 
+tiktok should not be ban it should just be up to the user if they want it or not if they are stealing date or something the usa should wipe it from all users but if they don't care then redownload it you know
