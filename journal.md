@@ -26,6 +26,6 @@ tiktok should not be ban it should just be up to the user if they want it or not
 |Name|Car|Mistake|
 | ----|------- | ----------- |
 |Jimmy|		Honda Civic  |Drilled Hole In Gas Tank|
-|Kayla|	GMC Sierr| |Fixed Wrong Problem|
+|Kayla|	GMC Sierr| Fixed Wrong Problem|
 |Bart|		Toyota Corolla |Left Stains On Carpet|
 |Harrison| Subaru Forester |Left The Oil Cap Off|
