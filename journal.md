@@ -23,8 +23,9 @@ I don't want to have a career in tech so far but still looking aroud
 # january 22, 2025 
 tiktok should not be ban it should just be up to the user if they want it or not if they are stealing date or something the usa should wipe it from all users but if they don't care then redownload it you know
 # january 27, 2025
- Name	Car	Mistake
-Jimmy		/ Honda Civic / Drilled Hole In Gas Tank
-Kayla		/GMC Sierra / Fixed Wrong Problem
-Bart		/Toyota Corolla/ Left Stains On Carpet
-Harrison/ Subaru Forester / Left The Oil Cap Off
+|Name	Car	Mistake|
+| ----------- | ----------- |
+|Jimmy|		|Honda Civic|  |Drilled Hole In Gas Tank|
+|Kayla|	|GMC Sierra| |Fixed Wrong Problem|
+|Bart|		|Toyota Corolla| |Left Stains On Carpet|
+|Harrison| |Subaru Forester| |Left The Oil Cap Off|
