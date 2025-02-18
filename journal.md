@@ -29,3 +29,5 @@ tiktok should not be ban it should just be up to the user if they want it or not
 |Kayla|	GMC Sierr| Fixed Wrong Problem|
 |Bart|		Toyota Corolla |Left Stains On Carpet|
 |Harrison| Subaru Forester |Left The Oil Cap Off|
+# february 18, 2025
+how the body works and I find the mind in the body the most intresting etc
