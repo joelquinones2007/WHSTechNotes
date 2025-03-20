@@ -31,3 +31,7 @@ tiktok should not be ban it should just be up to the user if they want it or not
 |Harrison| Subaru Forester |Left The Oil Cap Off|
 # february 18, 2025
 how the body works and I find the mind in the body the most intresting etc
+# february 24, 2025
+moder slang is good for short and fast talks but can be very un stalbe and some good to say othen the unneed ones\
+# maech 17, 2025
+on spring break I used my phone and played video games also i used my phone to play games or watch tiktok etc
