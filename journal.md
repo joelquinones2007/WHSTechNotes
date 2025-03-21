@@ -29,9 +29,13 @@ tiktok should not be ban it should just be up to the user if they want it or not
 |Kayla|	GMC Sierr| Fixed Wrong Problem|
 |Bart|		Toyota Corolla |Left Stains On Carpet|
 |Harrison| Subaru Forester |Left The Oil Cap Off|
+# february 3, 2025 
+could have run testes over and over aging for the air traffic and etc with differnet pormbles 
+# february 11,2025
+
 # february 18, 2025
 how the body works and I find the mind in the body the most intresting etc
 # february 24, 2025
 moder slang is good for short and fast talks but can be very un stalbe and some good to say othen the unneed ones\
-# maech 17, 2025
+# March 17, 2025
 on spring break I used my phone and played video games also i used my phone to play games or watch tiktok etc
