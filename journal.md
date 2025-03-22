@@ -32,10 +32,12 @@ tiktok should not be ban it should just be up to the user if they want it or not
 # february 3, 2025 
 could have run testes over and over aging for the air traffic and etc with differnet pormbles 
 # february 11,2025
-
+the features would be incoulding how the fast the ball travlens or get from place to place like throwing it to a other player and they cuaght it that the distans and cut to a new date format like how far the plaer runs with the ball in his hand aand how fast also the decristes the exlaterrates so for then the stopping point at that with sparate chates then at the end shows the toled of speed and air time fastes/peaked speeds also power aglnges footwork how it could have went and the best possablitys also giving the same situwayul as it would be in game and run it through the alogrithims as if it was raining light, hard, where so forth also if it was windly like how strogh light, hard where north west east south so on and how would the players react to such a chage  
 # february 18, 2025
 how the body works and I find the mind in the body the most intresting etc
 # february 24, 2025
-moder slang is good for short and fast talks but can be very un stalbe and some good to say othen the unneed ones\
+modner slang is good for short and fast talks but can be very un stalbe and some good to say othen the unneed ones
+# march 3, 2025
+
 # March 17, 2025
 on spring break I used my phone and played video games also i used my phone to play games or watch tiktok etc
