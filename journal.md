@@ -43,3 +43,5 @@ modner slang is good for short and fast talks but can be very un stalbe and some
 on spring break I used my phone and played video games also i used my phone to play games or watch tiktok etc
 # march 24, 2025
 any sport can be looking at staiuets like tennies you can look at the sets and where the perosn is tried etc even the outcome of speed etc
+# march 31, 2025
+my stress are low but sometimes high thinking what job im gonna get or have etc 
