@@ -45,3 +45,5 @@ on spring break I used my phone and played video games also i used my phone to p
 any sport can be looking at staiuets like tennies you can look at the sets and where the perosn is tried etc even the outcome of speed etc
 # march 31, 2025
 my stress are low but sometimes high thinking what job im gonna get or have etc 
+# april 10, 2025 
+the artificial intelligence we know from the real world is from our human expierces and so on the ai we writre are made from us to work faster or make things understand
