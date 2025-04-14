@@ -47,3 +47,5 @@ any sport can be looking at staiuets like tennies you can look at the sets and w
 my stress are low but sometimes high thinking what job im gonna get or have etc 
 # april 10, 2025 
 the artificial intelligence we know from the real world is from our human expierces and so on the ai we writre are made from us to work faster or make things understand
+# april 14, 2025
+I think its understandalbe but we need our phones for fast chethks to see if our love ones okay or to get help money wise to etc
