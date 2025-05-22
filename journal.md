@@ -49,3 +49,9 @@ my stress are low but sometimes high thinking what job im gonna get or have etc
 the artificial intelligence we know from the real world is from our human expierces and so on the ai we writre are made from us to work faster or make things understand
 # april 14, 2025
 I think its understandalbe but we need our phones for fast chethks to see if our love ones okay or to get help money wise to etc
+# may 5, 2025 
+the gorilla will win because of its streahge and tough skin 100 men can't do anything unlsee they get it tried and some how hits its eye and so on 
+# may 12, 2025 
+we should not do this becuase it can hurts us or others even make you pay fees/fines so much more 
+# may 19, 2025
+no and yes becuase I don't know if i will be busy or something i be more alone becuase i only have friends at school will see though 
